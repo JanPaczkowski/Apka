@@ -1,0 +1,1 @@
+System obs³ugi hotelu
